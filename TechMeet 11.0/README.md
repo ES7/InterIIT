@@ -1,1 +1,1 @@
-# InterIIT TechMeet 11.0 Held at IIT Kanpur
+# InterIIT TechMeet 11.0 held at IIT Kanpur
